@@ -8,4 +8,3 @@
 - 💬 Ask me about SpaceX or LoL
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I have too many hours on League of Legends 
-
