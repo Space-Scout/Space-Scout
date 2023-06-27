@@ -6,4 +6,3 @@
 - 👯 I’m looking to collaborate on web and mobile apps, backend, anything really!
 - 💬 Ask me about SpaceX, LoL, MCU, and Star Wars to name a few!
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I have too many hours on League of Legends 
